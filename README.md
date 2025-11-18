@@ -1,0 +1,2 @@
+# EZtuff
+EZtuff mod wiki
